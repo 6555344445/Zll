@@ -2,7 +2,7 @@
 - 👀 I’m interested in 旅游 运动
 - 🌱 I’m currently learning C加加
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me 微信
+- 📫 How to reach me 微信zll20050616
 - 😄 Pronouns: 秃头星人
 - 
 
